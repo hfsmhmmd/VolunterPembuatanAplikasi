@@ -10,3 +10,6 @@ Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 
+* Muhammad Hapis, [linked.in](https://www.linkedin.com/in/hafiz-muhammad-095417202/)
+
+
